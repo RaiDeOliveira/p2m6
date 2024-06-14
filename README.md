@@ -73,3 +73,4 @@ A solução apresentada e as demais listadas na questão 2.2 não tem capacidade
 
 **Quem ganha a bola de ouro 2024?**
 
+nao sei 💀
